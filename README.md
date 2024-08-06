@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @luniazarova
-- 👀 I’m interested in ... Asahi Linux, old computer games, Soviet Russian music, cooking, legal recreational substances.
+- 👀 I’m interested in ... old computer games, Soviet Russian music, cooking, legal recreational substances.
 - 🌱 I’m currently learning ... Basic script. Hoping to springboard into coding. Self-taught.
-- 💞️ I’m looking to collaborate on ... Asahi Linux, krun, x86 to ARM translation effort on Linux.
-- 📫 How to reach me ... Please message me here or on Reddit @ u/Prestigious-Oil374
+- 💞️ I’m looking to collaborate on ... Web Development.
+- 📫 How to reach me ... Please message me here or on X @AnonymousRSlut
 - 😄 Pronouns: ... She/her, please.
 - ⚡ Fun fact: ... I have nueve gatitas...
 
