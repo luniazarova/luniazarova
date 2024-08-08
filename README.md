@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @luniazarova
+- 👋 Hi, I’m @slaviankatrumpgit
 - 👀 I’m interested in ... old computer games, Soviet Russian music, cooking, legal recreational substances.
 - 🌱 I’m currently learning ... Basic script. Hoping to springboard into coding. Self-taught.
 - 💞️ I’m looking to collaborate on ... Web Development.
